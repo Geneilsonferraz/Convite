@@ -1,2 +1,0 @@
-# Convite
-Carla &amp; Gilson
